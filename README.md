@@ -123,7 +123,7 @@ Acharya Institute of Technology
 
 ## Let's Connect
 
-**LinkedIn:** [Add your LinkedIn profile here]
+**LinkedIn:** www.linkedin.com/in/basanth-b-392b0b230
 
 **GitHub:** [Basanthb18](https://github.com/Basanthb18)
 
